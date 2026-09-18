@@ -22,4 +22,4 @@ Não fiz o desenho exatamente igual porque sinto que o objetivo era mais sobre a
 [código pt.3.png](código%20pt.3.png)
 
 
-Afonso Fernandes Lopes Alves A115038  ![Eu](eu.jpeg)
+Afonso Fernandes Lopes Alves A115038 
